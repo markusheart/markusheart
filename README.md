@@ -1,7 +1,7 @@
 
-<p align= center> AAAAAAAAHHHH THEYRE IN LOVE AHHHHHHHH AHHHHHHHHHHHHHHHH
+<p align= center> YESS YESSS YES TALK TO ME YES YES YES YES YES YES
 <p align="center" width="500%">
-    <img width="500%"src="https://github.com/user-attachments/assets/a6ac8ea7-6e9b-423a-a59f-cb1c2fc62533"> 
+    <img width="500%"src="https://github.com/user-attachments/assets/d20f1121-4887-416e-8519-b41eebf493fa"> 
 </p>
 <p align= center> 
 <p align="center" width="500%">
