@@ -1,13 +1,6 @@
 
 
-<p align= center> HIIIIIII YOU'RE COOL TOO THANKU I LOVE YOUR COLORING AAAAAAAGG
+<p align= center> markus is in one of his depressive episodes so he's been offline!
 <p align="center" width="500%">
-    <img width="500%"src="https://github.com/user-attachments/assets/a55cbd1c-8e2f-41c1-94d5-ad83ee12b7e2"> 
-    <img width="500%"src="https://github.com/user-attachments/assets/2b95ca12-3286-4c1a-8f89-1640947dc98e"> 
-</p>
-<p align= center> 
-<p align="center" width="500%">
-    <img width="500%"src=""> 
-</p>
-
-
+    <img width="500%"src="https://github.com/user-attachments/assets/a13ca854-7942-4066-8740-fd2892fa7d55"> 
+    
