@@ -2,5 +2,5 @@
 
 <p align= center> I HATE MY SKINS!!!!
 <p align="center" width="500%">
-    <img width="500%"src="https://github.com/user-attachments/assets/a13ca854-7942-4066-8740-fd2892fa7d55"> 
+    <img width="500%"src="https://64.media.tumblr.com/b5125c3a56ee648cb0f23cbf04f724c8/68ae230635488296-8e/s500x750/a81785d7acd2df98f012e1863c2f714054f4328e.jpg"> 
     
