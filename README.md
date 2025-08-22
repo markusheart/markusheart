@@ -1,6 +1,6 @@
 
 
-<p align= center> online every so often. I comm'd my pfp hahahahaaa 
+<p align= center> online every so often. I love .. metamy & veestro thats me
    
   <p align= center>  OKAY WAIT PROSHIPPERS STOP INTERACTING WITH ME NO FOLLOWING NO CROWNING (proshippers' moots get blocked too lmao)
 <p align="center" width="500%">
