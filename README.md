@@ -1,3 +1,3 @@
-<p align="center" width="500%"> send me 123 for shellevision kissing
-<p align="center" width="500%"> OKAY github user FORGOTTENFEELINGS
-    <img width="500%"src="https://github.com/user-attachments/assets/7fdaaa4a-338a-4e53-a903-5f075f03ebbc"> 
+<p align="center" width="500%"> 300 FOLLOWERS YOOOOO!!! today was a terrible day, but I thank you lot for making it a tad better. whisp me to chat, I need friends! (non-lying asshole ones preferably!)
+    <img width="500%"src="https://github.com/user-attachments/assets/d1d28e21-ce63-42b4-b4ce-3917060aaeb3"> 
+
